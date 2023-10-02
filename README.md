@@ -12,4 +12,4 @@ carneiro.everton@escola.pr.gov.br
 
 
 
-![](https://media.tenor.com/Hfu-VJ4gjVwAAAAC/mmi-morsmutual.gif)
+! [ ] (https://media.tenor.com/cFXxQo9EqVQAAAAd/naruto.gif)
