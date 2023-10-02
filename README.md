@@ -11,5 +11,4 @@ Meu nome é Everton Bueno Carneiro
 carneiro.everton@escola.pr.gov.br
 
 
-
-! [ ] (https://media.tenor.com/cFXxQo9EqVQAAAAd/naruto.gif)
+! [ ] (https://media.tenor.com/E6l5I5PvdB8AAAAC/joey-lagano-burn-outs.gif)
